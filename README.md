@@ -1,0 +1,2 @@
+# dynadotapplepayvideo
+dynadot applepay video
